@@ -3,6 +3,6 @@
  for their own business or   for colour prediction website 
  dm @Brutal900l
  for more details all types of website detup available 
- php , java  or any kther language 
+ php , java  or any other language 
  dm for more details
  https://t.me/Brutal900l
